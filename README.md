@@ -1,1 +1,1 @@
-# mas-mau-bilang-sesuatu-buka-inj-ya
+# mas-mau-bilang-sesuatu-buka-ini-ya
